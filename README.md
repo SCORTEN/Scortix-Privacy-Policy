@@ -1,0 +1,1 @@
+# Scortix-Privacy-Policy
